@@ -1,5 +1,5 @@
-Up to Edinburgh on Tuesday evening
-Heading to FW Wednesday morning
+- Up to Edinburgh on Tuesday evening
+- Heading to FW Wednesday morning
 Itinerary:
   - Drive to FW + Golf (weds)
   - Rory monroes (thur)
